@@ -1,1 +1,0 @@
-# structureel-24-uur-per-dag-laptops-en-pc-thuis-afschieten
